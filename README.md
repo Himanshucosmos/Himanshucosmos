@@ -35,6 +35,6 @@ I'm still connecting mine.
 
 ---
 
-📍 Bengaluru &nbsp;&nbsp; · &nbsp;&nbsp; [LinkedIn](https://linkedin.com/in/banatawalbeh) &nbsp;&nbsp; · &nbsp;&nbsp; [Email](mailto:your@email.com)
+📍 Bengaluru &nbsp;&nbsp; · &nbsp;&nbsp; [LinkedIn](https://linkedin.com/in/himanshucosmos) &nbsp;&nbsp; · &nbsp;&nbsp; [Email](mailto:himanshu.resilience@email.com)
 
 *Per aspera, ad astra.*
